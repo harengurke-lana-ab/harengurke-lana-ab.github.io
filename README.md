@@ -1,3 +1,3 @@
 # harengurke-lana-ab.github.io
-Vår hemsida!
-
+Haren & Gurkstavs låne pennor & laddare AB
+Låna! Låna! Låna!
